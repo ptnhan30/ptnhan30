@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Nhân nè =)))
+- 👋 Hi,Mình là Nhân nè =)))
 
 
 <!---
